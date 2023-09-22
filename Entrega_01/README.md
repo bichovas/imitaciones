@@ -11,7 +11,7 @@
 https://youtu.be/c_laI8Jeyvg
 
 # Link presentación PDF
-https://drive.google.com/file/d/1IKWfuYtayEUTXJg6g5Wo6VPfEFVdTc4F/view?usp=sharing
+https://drive.google.com/file/d/1gZmHcc84sfE_dzlBwz-qc4moiclH8_qo/view?usp=sharing
 
 # Link propuesta de investigación
 https://drive.google.com/file/d/1HFdoorDtXMLNGAyOZuiSRcvjqKt6P1CO/view?usp=sharing 
